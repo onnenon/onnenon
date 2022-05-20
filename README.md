@@ -14,4 +14,4 @@ Here are some ideas to get you started:
 -->
 
 ![Snipers](/media/sniper_morning.jpeg)
-
+Sniper Section / Eastern Afghanistan 2012
